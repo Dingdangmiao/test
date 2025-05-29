@@ -1,1 +1,1 @@
-The 35-year-old, who is based in Taipei, took 455 days to shoot the 100-minute project in various countries and areas such as the US, Singapore, Malaysia, Hong Kong and Taiwan.
+Have a good day!
